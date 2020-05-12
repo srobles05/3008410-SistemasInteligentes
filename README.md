@@ -1,6 +1,6 @@
 # 3008410 - Sistemas Inteligentes
 
-Repositorio de Aprendizaje de Máquinas  
+Repositorio de Sistemas Inteligentes  
 Universidad Nacional - Sede Medellin  
 2020-1S
 
