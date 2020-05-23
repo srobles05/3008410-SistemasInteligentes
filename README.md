@@ -12,4 +12,7 @@ Docente: Ph.D. John William Branch
 
 **Sesión 02**
 * https://drive.google.com/file/d/1Dv8ROGoivi02jAMhoBa_oteystHngpff/view  
-* https://drive.google.com/file/d/1GocoMMtqgCrakeH46B7wrZ8oAuF5Fh28/view
+* https://drive.google.com/file/d/1GocoMMtqgCrakeH46B7wrZ8oAuF5Fh28/view  
+
+**Sesipon 03**
+* https://drive.google.com/open?id=1_afzfimIQyGe9TXRTvdKC5iP4ehUzppo  
