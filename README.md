@@ -27,3 +27,6 @@ Cuerpo: Por favor escribir todos los nombres de los integrantes en el cuerpo del
 
 **Sesión 05**  
 * https://drive.google.com/file/d/1WqXEzJynO5got6mg7eVdUghYGTh7FI4_/view  
+
+**Sesión 06**  
+* https://drive.google.com/open?id=14CbUL1lbidNBt5cwH8uV6BECBISNUGL9  
