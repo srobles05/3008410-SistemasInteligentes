@@ -30,3 +30,6 @@ Cuerpo: Por favor escribir todos los nombres de los integrantes en el cuerpo del
 
 **Sesión 06**  
 * https://drive.google.com/open?id=14CbUL1lbidNBt5cwH8uV6BECBISNUGL9  
+
+**Sesión 07**  
+* https://drive.google.com/open?id=1-Hfy7vJTcJTwgllAEL4FyjAuM5kUArZ0  
